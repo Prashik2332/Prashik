@@ -1,2 +1,1 @@
-# Prashik
-This is awesome 
+WWW.NEWSBLOGCENTARL.COM
